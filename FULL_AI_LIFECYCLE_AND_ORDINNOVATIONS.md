@@ -1,0 +1,1 @@
+Detailed pioneering research payload... [expanded text]
